@@ -1,1 +1,1 @@
-<img src="https://github.com/user-attachments/assets/b1c4e4d2-a50b-4e8b-b32d-c9ecc7e6a4e4" alt="meme" width="500">
+<img src="https://github.com/user-attachments/assets/f8874efc-7669-4fca-91f1-b4c6053ea806" alt="meme" width="500">
